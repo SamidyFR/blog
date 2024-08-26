@@ -147,7 +147,7 @@ this one will probably be really short as i dont have many cons about this game,
 
 thats about it that i have tbh.
 
-## Part 1 - Conclusion <a name='part1'></a>
+## Part 7 - Conclusion <a name='part1'></a>
 
 so, after writing a whole essay about this game, i think you know my answer.
 
